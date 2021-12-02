@@ -1,1 +1,1 @@
-# snakemodd
+When you download the SnakeCheat.html file, you go to the top of the right side under, the X, and press the 3 dots, then you go to Bookmakers and press Bookmark Manager. When you're on the Bookmark Manager, press the 3 dots on the blue line, and press Import Bookmarks, then import the SnakeCheat.html file into an bookmark, and then you should be done. So now you are on google snake, then go to the bookmark and press it, to get all the hidden things.
